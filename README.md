@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning dsa and web dev
 
 - 📫 How to reach me ...ig/thetanmaypandeyy
-- 😄 Pronouns: ...tanmu
+- 😄 Pronouns: ...he/him
 - ⚡ Fun fact: ... I'm seeing that you're seeing 🤣 
 
 <!---
